@@ -1,0 +1,1 @@
+![Classification of a dog](https://us-east-1.tixte.net/uploads/i.shivs.me/brave_pP0FLbx57r.png)
